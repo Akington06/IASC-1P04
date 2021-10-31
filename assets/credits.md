@@ -16,6 +16,15 @@ Attribution Noncommercial (3.0)
 
 ---
 
+"ViolinDanger"
+by Wagna
+
+2015 - Licensed under
+Creative Commons
+Attribution 0
+
+---
+
 "23rd District Police Station, Weather Underground Target, Near John Dillinger Hideout" by Chicago Crime Scenes is licensed under CC BY-NC 2.0
 
 ---
@@ -41,15 +50,6 @@ Attribution Noncommercial (3.0)
 ---
 
 "Silhouettes" by eeskaatt is licensed under CC BY-SA 2.0
-
----
-
-"ViolinDanger"
-by Wagna
-
-2015 - Licensed under
-Creative Commons
-Attribution 0
 
 ---
 
