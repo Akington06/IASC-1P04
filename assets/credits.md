@@ -39,3 +39,7 @@ Attribution Noncommercial (3.0)
 "Muddy Tire Tracks" by GrungeTextures is licensed under CC BY-NC 2.0
 
 ---
+
+"Silhouettes" by eeskaatt is licensed under CC BY-SA 2.0
+
+---
