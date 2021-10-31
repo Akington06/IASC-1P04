@@ -23,3 +23,7 @@ Attribution Noncommercial (3.0)
 "Crime Scene Tape" by Null Value is licensed under CC BY-NC-ND 2.0
 
 ---
+
+"My Bullet." by William Hook is licensed under CC BY-SA 2.0
+
+---
