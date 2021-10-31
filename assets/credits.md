@@ -27,3 +27,7 @@ Attribution Noncommercial (3.0)
 "My Bullet." by William Hook is licensed under CC BY-SA 2.0
 
 ---
+
+"A note on a tree" by schmilblick is licensed under CC BY 2.0
+
+---
