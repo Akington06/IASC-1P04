@@ -1,6 +1,6 @@
-#Behind The Shadow
+# Behind The Shadow
 
-##Playtest
+## Playtest
 
 ## Play the game
 
