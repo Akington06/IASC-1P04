@@ -94,7 +94,7 @@ Attribution 0
 
 ---
 
-"I tend to scribble a lot" by Unhindered by Talent is licensed under CC BY-SA 2.0
+"Fluid lines leaves no point, they are just scribbles" by Broo_am (Andy B) is licensed under CC BY-ND 2.0
 
 ---
 
