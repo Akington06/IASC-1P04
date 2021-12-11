@@ -98,3 +98,14 @@ Attribution 0
 
 ---
 
+"Broken Rusty Lock: Security (grunge)" by subcircle is licensed under CC BY 2.0
+
+---
+
+"Uniform" by Telstar Logistics is licensed under CC BY-NC 2.0
+
+---
+
+"Guns & Ammo 2" by kcdsTM is licensed under CC BY 2.0
+
+---
