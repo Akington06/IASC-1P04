@@ -33,6 +33,7 @@ Attribution 0
 
 ---
 
+2017 - Licensed under
 "My Bullet." by William Hook is licensed under CC BY-SA 2.0
 
 ---
@@ -60,3 +61,37 @@ Attribution 0
 "Super cool police officer." by Peter Martin Hall is licensed under CC BY-NC 2.0
 
 ---
+
+Drip Echo
+by SpiceProgram
+
+2017 - Licensed under
+Creative Commons
+Attribution 3
+
+---
+
+ Locker_open
+ by laiaoreka
+ 
+2014  Licensed under
+Creative Commons
+Attribution 3
+
+---
+
+DangerSound_001
+by yottasounds
+
+2013 - Licensed under
+Creative Commons
+Attribution 3
+
+---
+
+'Win' Video Game Sound Effect
+by SRJA_Gaming
+
+2020 - Licensed under
+Creative Commons
+Attribution 0
